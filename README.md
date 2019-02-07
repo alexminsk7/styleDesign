@@ -1,1 +1,1 @@
-
+Golden One Page Template
